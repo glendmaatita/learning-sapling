@@ -9,3 +9,7 @@ Bounjour!
 Sugeng rawuh!
 
 Sugeng dalem!
+
+Halo kawan!
+
+Hei konco!
